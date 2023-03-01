@@ -1,4 +1,4 @@
-Heyyyyy!
+Hey!
 
 🥖 Student at Codam 🇳🇱
 
